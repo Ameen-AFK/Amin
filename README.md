@@ -1,0 +1,2 @@
+# Amin
+BE A BUDDY NOT A BULLY
